@@ -16,13 +16,15 @@ _Email_: hwangbo@uw.edu  /  _Phone_: 206-849-8926
 * Languages: Korean (native), English (fluent), French (basic)
 
 #### EDUCATION
-![**University of Washington**](https://s-media-cache-ak0.pinimg.com/236x/af/46/7e/af467ec32978579221c83b2ac7845d15.jpg), Seattle, WA
+**University of Washington**, Seattle, WA
 _Bachelor of Arts, International Studies_ (GPA: 3.4/Dean's List)
 June 2017
+![UW logo](https://s-media-cache-ak0.pinimg.com/236x/af/46/7e/af467ec32978579221c83b2ac7845d15.jpg)
 
-![**Crofton House School**](http://www.croftonhouse.ca/uploaded/images/logo-CroftonHouse.gif), Vancouver, WA
+**Crofton House School**, Vancouver, WA
 _High School Diploma_
 June 2011
+![Ivy Leaf logo](http://www.croftonhouse.ca/uploaded/images/logo-CroftonHouse.gif)
 
 #### RELATED EXPERIENCE
 **Office Administrator Assistant**, Dr. Quoc Tan Tran Women's Clinic, Vancouver, BC  /  March 2009-June 2011
